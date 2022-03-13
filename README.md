@@ -1,2 +1,0 @@
-# de-pijnbank
-sociale zaken
